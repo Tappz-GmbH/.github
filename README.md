@@ -12,7 +12,9 @@ Tappz was founded by two long-time friends 👬 and technology enthusiasts 🤖�
 Our passion for successful development and marketing of mobile apps using cloud technologies ☁️🔗 has connected us since our teenage years.
 
 
-### YOU ARE INTEREST IN JOINING OUR TEAM ? ###
+### YOU ARE INTERESTED IN JOINING OUR TEAM ? ###
 
-Write us an email with your CV [here](mailto:jonas@tappz.de;christopher@tappz.de)
-👥🚀🔝
+We are looking for talents in App Development, UI and Creatives and App Marketing
+
+Write us an email with your CV and contact details
+[here](mailto:jonas@tappz.de;christopher@tappz.de)
