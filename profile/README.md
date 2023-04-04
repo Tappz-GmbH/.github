@@ -14,7 +14,9 @@ Our passion for successful development and marketing of mobile apps using cloud 
 
 ### YOU ARE INTERESTED IN JOINING OUR TEAM ? ###
 
-We are looking for talents in App Development, UI and Creatives and App Marketing
+We are looking for talents in App Development, UI/UX-Experts and graphic and media design
 
 Write us an email with your CV and contact details
 [here](mailto:jonas@tappz.de;christopher@tappz.de)
+
+We look forward to hearing from you ✉️
